@@ -1,1 +1,0 @@
-draft version of poster
